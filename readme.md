@@ -1,0 +1,1 @@
+This contains blog comments for ricklove.me
